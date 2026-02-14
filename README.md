@@ -11,6 +11,7 @@
   - If you're here because I'm cosplaying someone from The Kid At The Back and you like the game, do not interact, or just sign my ata and be done with it. Do not try hanging out with me.
     - It's not personal beef with anyone, I just do not trust the fandom to not defend or justify Sol's actions. I like Sol's character & design, but I absolutely hate his actions.
   - I am mentally unwell, so interact with care !! I'm not a mean person, and do enjoy interacting with others. I also have autism, so please be patient and use tone tags.
+  - I'm 19, if you don't want to interact with a 19 year old, that's fine !
   - Do not try to change my mind on things that I don't like. I've had people get upset at me for not liking Bakugo. I have my reasons, leave it be.
   - If you're a friend, please try to speak with me every now and then. I forget to hang out often, and would rather someone initiate conversation + hanging out.
   - I am an energetic person ! I kin Emu Otori, Haru Urara, Hu Tao, Furina, and Yoisaki Kanade if that'll help you understand my personality more !
@@ -25,7 +26,7 @@
   - IWCUF/IWECUF just means do not talk to me ! You may C+H if you want to
   - You'll see me with this GitHub if I'm with my best friend, otherwise you'll see me at the TWST area. You'll know it's me by the ata ! I use the same one.
   - You're always free to start a convo with me in whisps if you're not cosplaying something like TKATB or DW! I'm always open to conversations.
-  - I'm nost often seen with my best friend, it's unlikely you'll see me without her unless she's offline.
+  - I'm most often seen with my best friend, it's unlikely you'll see me without her unless she's offline.
 </details>
 
 <img width="948" height="121" alt="image" src="https://github.com/user-attachments/assets/650d1641-1288-4b29-b0f2-0ab1609fd149" />
