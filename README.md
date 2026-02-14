@@ -11,10 +11,13 @@
   - If you're here because I'm cosplaying someone from The Kid At The Back and you like the game, do not interact, or just sign my ata and be done with it. Do not try hanging out with me.
     - It's not personal beef with anyone, I just do not trust the fandom to not defend or justify Sol's actions. I like Sol's character & design, but I absolutely hate his actions.
   - I am mentally unwell, so interact with care !! I'm not a mean person, and do enjoy interacting with others. I also have autism, so please be patient and use tone tags.
+     - I let my friends get away with a lot. Strangers don't get many chances with me. If you make NSFW jokes in public and I see, it's likely I'll block you. I don't unblock people.
   - I'm 19, if you don't want to interact with a 19 year old, that's fine !
   - Do not try to change my mind on things that I don't like. I've had people get upset at me for not liking Bakugo. I have my reasons, leave it be.
-  - If you're a friend, please try to speak with me every now and then. I forget to hang out often, and would rather someone initiate conversation + hanging out.
+  - If you're a friend, please try to speak with me every now and then. I forget to hang out often, and would rather someone initiate conversation + hanging out. This also is because I have social anxiety, and get too nervous to talk first.
   - I am an energetic person ! I kin Emu Otori, Haru Urara, Hu Tao, Furina, and Yoisaki Kanade if that'll help you understand my personality more !
+  - Basic DNI, proshippers/dark shippers, TKATB fans if you're not my friend, Dandy's World fans if you're not my friend
+  - Non-sharing yumeshippers have to IWEC or just not interact. I don't call myself a yumeshipper/self-shipper but my actions are essentially someone who would self-ship.
 </details>
 
 <details>
