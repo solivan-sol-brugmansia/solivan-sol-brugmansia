@@ -9,7 +9,7 @@
 <summary>GENERAL INFO ABOUT ME</summary>
  
   - If you're here because I'm cosplaying someone from The Kid At The Back and you like the game, do not interact, or just sign my ata and be done with it. Do not try hanging out with me.
-    - It's not personal beef with anyone, I just do not trust the fandom to not defend or justify Sol's actions. I like Sol's character & design, but I absolutely hate his actions.
+    - It's not personal beef with anyone, I just do not trust the fandom to not defend or justify Sol's actions. I like Sol's character & design, but I absolutely hate his actions. If you tell me to play another game, piss off. I'm allowed to like a character & not justify or defend their actions. It's like people cosplaying Dottore when he canonically has tortured & killed people with his experiments. I have genuinely witnessed people get told to stop playing the game just because they don't like Sol's actions.
   - I am mentally unwell, so interact with care !! I'm not a mean person, and do enjoy interacting with others. I also have autism, so please be patient and use tone tags.
      - I let my friends get away with a lot. Strangers don't get many chances with me. If you make NSFW jokes in public and I see, it's likely I'll block you. I don't unblock people.
   - I'm 19, if you don't want to interact with a 19 year old, that's fine !
