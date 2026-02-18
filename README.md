@@ -18,6 +18,10 @@
   - I am an energetic person ! I kin Emu Otori, Haru Urara, Hu Tao, Furina, and Yoisaki Kanade if that'll help you understand my personality more !
   - Basic DNI, proshippers/dark shippers, TKATB fans if you're not my friend, Dandy's World fans if you're not my friend
   - Non-sharing yumeshippers have to IWEC or just not interact. I don't call myself a yumeshipper/self-shipper but my actions are essentially someone who would self-ship.
+<img width="500" height="550" alt="image" src="https://github.com/user-attachments/assets/c05ff277-f23d-4d10-b023-0c3dbde9d1eb" />
+
+ ^ Me and my best friend core
+
 </details>
 
 <details>
